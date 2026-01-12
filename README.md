@@ -16,6 +16,6 @@
 
 stamps by me
 
-atabook signs appreciated!!
+atabook signs appreciated!! c+h always welcome
 
 basic dni, -16, proshit, vivzie defenders and r slur users dni

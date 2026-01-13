@@ -18,4 +18,4 @@ stamps by me
 
 atabook signs appreciated!! c+h always welcome
 
-basic dni, -16, proshit, vivzie defenders and r slur users dni
+basic dni, -16, proshit, vivzie defenders and r slur users You'll be executed NOW

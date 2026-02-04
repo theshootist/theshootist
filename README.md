@@ -6,7 +6,7 @@
 
 ![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/3c74d06b377fdc9b-f8/s500x750/a5a089864e338f265d3159fccb896853d0ea6be7.gifv)
 
-![](https://64.media.tumblr.com/7f5e054195f2ac9168c2260e60f22f39/d01d2cba902f3b79-bd/s540x810/6b384dd2643308dbb6dac60042a6603fe86217a8.gifv)
+![](https://file.garden/aNlC8bn6tHaGaN__/john-marston-smoke-john-marston-cigarette(1)(1).gif)
 
 ![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/3c74d06b377fdc9b-f8/s500x750/a5a089864e338f265d3159fccb896853d0ea6be7.gifv)
 

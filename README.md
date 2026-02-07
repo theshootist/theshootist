@@ -18,4 +18,4 @@ rdr stamps by [@irldenji](https://www.tumblr.com/irldenji/780741681779802112/cou
 
 atabook signs appreciated!! c+h always welcome
 
-basic dni, -16, proshit, vivzie defenders and r slur users You'll be vaporized Tomorrow
+basic dni, -16, proshit/darkshit whatever else, vivzie defenders and r slur users You'll be vaporized Tomorrow

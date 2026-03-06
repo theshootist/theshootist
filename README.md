@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=theshootist&color=6b4506&base=4069&style=plastic&label=𐚁)
 
-john marston high kin and tord id! i dont mind doubles 
+john marston high kin and tord id! i dont mind doubles ヽ(≧▽≦)ﾉ
 
 ![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/3c74d06b377fdc9b-f8/s500x750/a5a089864e338f265d3159fccb896853d0ea6be7.gifv)
 
